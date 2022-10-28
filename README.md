@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ashulohan007
-- 👀 I’m interested in cybersecurity
+- 👀 I’m interested in learning New Technology 
 - 🌱 I’m currently learning networking
 - 💞️ I’m looking to collaborate on network engineering
 - 📫 How to reach me !!!
